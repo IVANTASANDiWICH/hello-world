@@ -1,4 +1,2 @@
 # hello-world
 My introduction on GitHub
-
-I'm a straight, white male, which means I have the privilege of being attacked by any other racial group or gender. The gift of "White Privilege". I'm also trying to learn to code and use a number of programming/software tools. It is my desire to be the man of my household and work my tail off to provide a wonderful life for my wife and children. Just trying to move on up in the world, and managing my "privilage" all along the way. You know they say, how hard you work or how smart you are has nothing to do with the amount of money you make. Apparently, the further from being a straight, white male you are, the less money you make. Don't worry about being a productive member of society and working hard. The government will take care of everything you need. Praise the sun!
